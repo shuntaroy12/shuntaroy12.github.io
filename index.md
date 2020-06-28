@@ -7,8 +7,8 @@ Hosseini has remarked that he regards the novel as a "mother-daughter story" in 
 ## Laila Character traits
 
 
-* **friendly** 
-* **beautiful**
-* **intelligent**
-* **ambitious**
-* **persistent**
+*friendly
+*beautiful
+*intelligent
+*ambitious
+*persistent
