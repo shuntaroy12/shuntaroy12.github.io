@@ -14,4 +14,6 @@ Hosseini has remarked that he regards the novel as a "mother-daughter story" in 
 
 As Miriam (Laila's mother) said:
 
->Learn this now and learn it well, my daughter: Like a compass needle that points north, a man's accusing finger always finds a woman. Always. You remember that, Mariam.>
+>Learn this now and learn it well, my daughter: Like a compass needle that points north, a man's accusing finger always finds a woman. Always. You remember that, Mariam.
+
+<img src="https://en.wikipedia.org/wiki/A_Thousand_Splendid_Suns#/media/File:A_Thousand_Splendid_Suns.gif"/>
