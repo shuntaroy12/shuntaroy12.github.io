@@ -11,3 +11,7 @@ Hosseini has remarked that he regards the novel as a "mother-daughter story" in 
 * persistent
 * ambitious
 * intelligent
+
+As Miriam (Laila's mother) said:
+
+>Learn this now and learn it well, my daughter: Like a compass needle that points north, a man's accusing finger always finds a woman. Always. You remember that, Mariam.>
